@@ -1,16 +1,16 @@
-# Too Many Fruits
+# Too Much Fruit
 
-I don't know how it likes in other countries, Chinese companies usually provide their employees with some foods as presents on Holiday.
+I don't know how it is like in other countries, Chinese companies usually provide their employees with some foods as presents on holidays.
 
-My company, this Christmas, dispensed fruits to everyone of us, two full cartons of fruits.
+This Christmas, my company dispensed fruits to everyone of us, two full cartons of fruit.
 
 I counted. They were 12 apples and 18 oranges.
 
-I admit that they are fresh and juicy. However, for a single person, who lives in an apartment alone without a refrigerator, they are too many.
+I admit that they are fresh and juicy. However, for a single person, who lives in an apartment alone without a refrigerator, that is too much fruit.
 
-I hate to waste, so I have to eat them up before they start to spoil. 
+I hate wasting, so I have to eat it all up before it starts to spoil. 
 
-But usually I wouldn't eat too many fruits, because my stomach always objects to it.
+But usually I wouldn't eat so much fruit because my stomach always objects to it.
 
 Such a dilemma.
 
