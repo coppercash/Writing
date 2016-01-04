@@ -10,7 +10,7 @@ People around her started to discuss how to help her.
 
 Because of some stupid judgments made before, in which the heroes were responsible to pay the medical fee for the persons they saved, less and less people dare to help strangers in China.
 
-I decided to call the police, because I saw her twitch once or twice. It would be too dangerous if the girl had had an epilepsy attack.
+I decided to call the police, because I saw her twitch once or twice. It would have been too dangerous if the girl had had an epilepsy attack.
 
 Fortunately, she woke up by herself. 
 
