@@ -2,13 +2,13 @@
 
 I threw away a whole box of chocolate because it was expired.
 
-I bought it for my mother on last New Year since she likes dessert.
+I bought it for my mother last New Year since she likes dessert.
 
 But, unfortunately, she received chocolate as gift from several other relatives of us.
 
 Thus, she wanted me to have some of it. I tried, but it was too much chocolate!
 
-In one of my early journals, I mentioned I hated wasting the fruit my company provided us, which resulted in I need to eat more fruit than usual for fear that it would spoil.
+In one of my early journals, I mentioned I hated wasting the fruit my company provided us, which resulted in me needing to eat more fruit than usual for fear that it would spoil.
 
 Under that journal, I was advised to give foods which I can't eat up myself to people who need them.
 
