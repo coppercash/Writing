@@ -1,16 +1,16 @@
-# High-Technology in McDonald's
+# High-Technology at McDonald's
 
-It is always annoying to queue up in front of counters in McDonald's, especially when it is rush hour.
+It is always annoying to queue up in front of counters at McDonald's, especially when it is rush hour.
 
 Fortunately, things are looking up.
 
-Last time I went to the McDonald's, I saw four pillars stand near the entrance. On each of them, there were two screens hung back to back.
+Last time I went to the McDonald's, I saw four pillars standing near the entrance. On each of them, there were two screens hung back to back.
 
 An advantage of being a programmer is that I don't need instructions to know how to use electronic devices.
 
 After I selected on the screen what I wanted to eat and whether I would like it here or to go, a QR code showed up on it. 
 
-I scanned the QR code with WeChat (a cell phone app integrates a function much like Paypal), and got a piece of paper with a serial number on it.
+I scanned the QR code with WeChat (a cell phone app that integrates a function much like Paypal), and then got a piece of paper with a serial number on it.
 
 Few minutes later, my serial number appeared on another screen above the counter, which meant my meal was ready.
 
