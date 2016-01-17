@@ -12,9 +12,10 @@ After I selected on the screen what I wanted to eat and whether I would like it 
 
 I scanned the QR code with WeChat (a cell phone app that integrates a function much like Paypal), and then got a piece of paper with a serial number on it.
 
-Few minutes later, my serial number appeared on another screen above the counter, which meant my meal was ready.
+Only a few minutes later, my serial number appeared on another screen above the counter, which meant my meal was ready.
 
 The whole process was just cool!
 
 ---
+
 [The Post on Lang-8](http://lang-8.com/1358180/journals/179346942355699516062652325615597552686)
