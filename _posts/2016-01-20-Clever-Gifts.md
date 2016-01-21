@@ -1,16 +1,16 @@
 # Clever Gifts
 
-Day by day, it is getting closer to the Spring Festival.
+Each day brings us closer to the Spring Festival.
 
-Every time for such significant traditional holidays, our company presents us with something as gifts.
+At every significant traditional holiday, our company presents us with some kind of gift.
 
-Yesterday they had our gifts dispensed to us, which consists of a vacuum cup, a bolster and several bags of nuts. The interesting thing is that we also have draw-bar boxes as packaging for all the other things.
+Yesterday they dispensed our gifts to us, which consisted of a vacuum cup, a bolster and several bags of nuts. The interesting thing is that we also had trolley luggages as packagings for all the other things.
 
-The Spring Festival vacation always involves a lot of travel, during which a draw-bar box is necessary and convenient. Moreover, without it, it will be a trouble for us to bring the other goods back home. 
+The Spring Festival vacation always involves a lot of travel, during which a trolley luggage is pratical and convenient. Moreover, without it, it would be troublesome for us to bring the other gifts back home. 
 
-Like last time, we had two cartons of fruit as gifts. They were pretty heavy, so if someone lived far, they'd better have a friend as assistance to bring that fruit home.
+Like last time, we received two cartons of fruit as gifts. They were pretty heavy, so if someone lived far away, they'd better have a friend to assist them in bringing that fruit home.
 
-Although I don't know whose idea is this, I appreciate these thoughts for their preparing the gifts.
+Although I don't know whose idea this is, I appreciate them for taking the time to prepare these gifts.
 
 ---
 
