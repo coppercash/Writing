@@ -14,7 +14,7 @@ Because on the track to my terminal point, which is to master speaking English, 
 
 I can't even describe my target clearly. All I can do is to head in a vague direction.
 
-Fortunately, I am not lonely on my journey. I have my fellas who can remind me how wonderful it will be if I achieve my goal, so I have not given up yet.
+Fortunately, I am not alone on my journey. I have my fellas who can remind me how wonderful it will be if I achieve my goal, so I have not given up yet.
 
 Thanks for your companionship, my friends. May we make more progress in the coming year!
 
