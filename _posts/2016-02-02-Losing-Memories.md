@@ -1,4 +1,4 @@
-# Lossing Memories
+# Losing Memories
 
 After we finished skiing last Saturday, one of my friend's workmates lost part of his memories, or at least it was what he claimed. 
 
