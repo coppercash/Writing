@@ -1,20 +1,20 @@
-# Tooth Extracting
+# Tooth Extraction
 
-Last week, I had one of my teeth, which was a wisdom tooth, extracted.
+Last week I had one of my teeth extracted. It was a wisdom tooth.
 
-I did it in a morning in order to go back to my duty in company.
+I had it done in a morning in order to go back to my duties at work.
 
-But I worried about if it would hurt too much so that I couldn't concentrate on my work.
+But I was worried about if it would hurt too much so that I couldn't concentrate on my work.
 
-Therefore, I waited in a the hospital till noon, sitting on a bench.
+Therefore, I waited at the hospital till noon, sitting on a bench.
 
-It seemed my tooth wasn't going to give me a hard time, so I went to my company.
+It seemed my tooth wasn't going to give me a hard time, so I went to my office building.
 
-However, at about 4 p.m. that day, the pain came eventually.
+However, at about 4 p.m. that day, the pain came.
 
 I thought the dentist injected too much anesthetic.
 
-According to what was written on the "Recovery Tips", the affection of anesthetic was supposed to disappear after 2 hours, but it took at least 4 hours on me.
+According to what was written on the "Recovery Tips", the effect of anesthetic was supposed to disappear after 2 hours, but it took at least four hours for me.
 
 ---
 
