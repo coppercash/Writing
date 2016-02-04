@@ -1,16 +1,16 @@
-# Forgot Covering the Bill
+# Forgot to Cover the Bill
 
 Last Sunday, I went to a coffee bar to do some work because I couldn't concentrate in my own apartment.
 
-It was a good bar because I need't pay before finishing the food I ordered. 
+It was a good bar because I didn't need to pay before finishing the food I ordered. 
 
-I believe a restaurant which is worth my coming once again should have the confidence to let its customer taste the food before spending money on it.
+I believe a restaurant worth returning to should have the confidence to let its customers taste the food before spending money on it.
 
-I was pretty efficient on my work that afternoon. I left the bar with satisfaction and headed towards another restaurant for dinner.
+I was pretty efficient on my work that afternoon. I left the bar satisfied and headed towards another restaurant for dinner.
 
-When I paid for my dinner, I thought this meal was so cheap that even the cup of coffee…wait, did I paid for my coffee?
+When I paid for my dinner, I thought the meal was so cheap that even the cup of coffee…wait, did I pay for my coffee?
 
-Fortunately, I found the contract of the coffee bar online so that, instead of in the real world, I could send them the money on the Internet.
+Fortunately, I found the contact information of the coffee bar online so that, instead of in the real world, I could send them the money on the Internet.
 
 ---
 
