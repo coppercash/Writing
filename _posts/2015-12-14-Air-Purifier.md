@@ -1,14 +1,14 @@
 # Air Purifier
 
-Yesterday, I received the air purifier I bought myself several days ago.
+Yesterday, I received the air purifier I bought several days ago.
 
 Except that it is a little noisy while working, all is good.
 
-It costed me ¥1000, with which I can buy 40 meals in the city I am currently living in.
+It costed me ¥1000, with which I could buy 40 meals in the city I am currently living in.
 
 And in every following year, I need to speed ¥400 on filter mesh, which is a kind of material consumed by the purifier.
 
-I have always heard that it costs you much more to live in Beijing than in other cities. But, it has never been such awful.
+I have always heard that it costs you much more to live in Beijing than in other cities. But, it has never been so awful.
 
 If you care about your own health, especially your lungs, you need to pay for the air you breath with a quite high price.
 
