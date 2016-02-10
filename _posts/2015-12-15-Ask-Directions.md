@@ -1,20 +1,20 @@
 # Ask Directions
 
-Yesterday, heading towards my office building, I was asked for directions by a foreign man in a subway station.
+Yesterday, while I was heading towards my office building, a foreign man in a the subway station asked me for directions.
 
-He had trouble to choose an escalator to get down to the right platform.
+He had trouble choosing an escalator to get down to the right platform.
 
-In Beijing most subway stations have 2 floors.
+In Beijing, most subway stations have two floors.
 
-On basement one you buy tickets, go through turnstiles, or transfer from on line to another, and the platforms are on basement two.
+You buy tickets, go through turnstiles, or transfer from one line to another on basement one, and the platforms are on basement two.
 
-I guess in this guy’s mind, different escalators would lead him to trains towards different directions.
+I guess in this guy’s mind, different escalators would lead him to trains traveling in different directions.
 
-And what I mainly did was explaining that both escalators led to a same platform, and on the left side of it, the train heads towards the north, on the right, it was the contrary.
+What I mainly did was explain to him that both escalators led to the same platform, and on the left side of it, the train heads towards the north, while on the right, it was the opposite.
 
 So, instead of the right escalator, it was the right side of the platform he needed to choose.
 
-My oral English is limited, and scarcely having chances to speak to a native speaker, I was a little nervous, so that I failed to make it clear and had no choice but to lead him to a train myself.
+My oral English is limited, and scarcely having chances to speak to a native speaker, I was a little nervous. In the end, I failed to make myself clear and had no choice but to lead him to a train myself.
 
 ---
 
