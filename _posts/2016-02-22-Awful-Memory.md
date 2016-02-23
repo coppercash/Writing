@@ -1,18 +1,18 @@
 # Awful Memory
 
-Forgetting the keys, I could't enter my apartment in the first evening I returned to Beijing from my hometown.
+Forgetting the keys, I couldn't enter my apartment on the first evening I returned to Beijing from my hometown.
 
-On the bright side, my landlord lives just one floor below my apartment, so I didn't have to find a hotel for that night.
+On the bright side, my landlord lives just one floor below my apartment, so I didn't have to look for a hotel for the night.
 
-However, a similar situtaion just had happened one week before I left for home.
+However, a similar situation had just happened a week before I left for home.
 
 Although knowing that I had to call him for help, I hesitated for a long time. 
 
-Without knowing the reason, I am incredibly reluctant to bother others in my subconcious.
+For some unknown reason, I am subconsciously incredibly reluctant to bother others.
 
-In the end, my landload heartily helped me open the door as he did for several times.
+In the end, my landlord heartily helped me open the door as he had done several times before.
 
-My awful memory just humaliated me one more time.
+This is just one more time my awful memory has caused an embarrassing situation.
 
 ---
 
