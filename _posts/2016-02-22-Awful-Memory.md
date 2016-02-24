@@ -1,6 +1,6 @@
 # Awful Memory
 
-Forgetting the keys, I couldn't enter my apartment on the first evening I returned to Beijing from my hometown.
+Having forgotten the keys, I couldn't enter my apartment on the first evening I returned to Beijing from my hometown.
 
 On the bright side, my landlord lives just one floor below my apartment, so I didn't have to look for a hotel for the night.
 
