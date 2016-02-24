@@ -2,17 +2,17 @@
 
 It is very hard for me to get up on cold winter mornings.
 
-Thus, I greet my friends in a mobile application to gain more motivation from their supervision.
+Therefore, before getting out of bed I text my friends, which helps me get motivated to get up.
 
-However, these days, I found myself could fell asleep again after sending out my greeting.
+However, these days, I find myself wanting to fall back asleep even after sending out my greeting.
 
-I have been trying many methods to fight against my relunctance on getting up early.
+I have been trying out many different methods to fight my relunctance for getting up early.
 
-Most of them worked perfectly at first, but gradually became noneffective just as the morning-greeting did.
+Most of them worked perfectly at first, but gradually became noneffective just as the morning texting did.
 
-Someone says that having trouble with getting up means one's lacking of passion for life.
+I've heard it said that having trouble with getting up means that one is lacking passion for life.
 
-I can't tell whether it is true. Perhaps, I need to find it myself.
+I can't tell whether that is true. Perhaps, I need to find it out for myself.
 
 ---
 
