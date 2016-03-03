@@ -1,14 +1,14 @@
-# Joining-Company Anniversary Celebration
+# Hiring Anniversary Celebration
 
-Till tomorrow, I will have been working for my company for a whole year.
+By tomorrow, I will have been working for my company for a whole year.
 
-I'd like to celebrate it by ordering a cake for my workmates to appreciate their accompanying in the last year.
+I'd like to celebrate it by ordering a cake for my workmates to show appreciation their accompanying me for the last year.
 
-However, I am currently hesitating.
+However, I am currently hesitant.
 
 Because I am not good at handling congratulation, the atmosphere would be awkward tomorrow.
 
-Although I know that all I need to do is to say "thank you", I just can't utter the words out of my mouth.
+Although I know that all I need to do is to say "thank you", I just can't utter the words.
 
 I think that is because I am a perfectionist inside — I want everything to be perfect, even some simple appreciation words.
 
