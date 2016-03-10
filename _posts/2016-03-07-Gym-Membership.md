@@ -2,9 +2,9 @@
 
 Last Saturday, I went to a gym nearby my apartment and arranged for a membership card.
 
-When walking through the playground with my brand new card, I was a little disappointed.
+When walking through the gym floor with my brand new card, I was a little disappointed.
 
-That was because around a fifth of the equipments were under repair.
+That was because around a fifth of the equipment was under repair.
 
 However, since there is no other gym around, feeling regret won't be helpful either.
 
@@ -12,11 +12,11 @@ A big comfort is that the atmosphere there was good — everyone focused so much
 
 A friend of mine can't understand why I'd spend time in gym which is such a boring place to him.
 
-I guess he have never walked in to a gym and see the people there doing exercise in their sweat soaked clothes and their faces twisting because of the pain from their muscles.
+I guess he has never walked in to a gym and see the people there doing exercise in their sweat soaked clothes and their faces twisting because of the pain from their muscles.
 
-Obviously, exercising is not something enjoyable, but with such strong desire to make themselves a better person, they work so hard.
+Obviously, exercising is not something enjoyable, but with such strong desire to make themselves a better person, they work hard.
 
-And such kind of desire do I have.
+I too, have this kind of desire.
 
 ---
 
