@@ -10,7 +10,7 @@ However, since there is no other gym around, feeling regret won't be helpful eit
 
 A big comfort is that the atmosphere there was good — everyone focused so much on doing exercise
 
-A friend of mine can't understand why I'd spend time in gym which is such a boring place to him.
+A friend of mine can't understand why I'd spend time at the gym which is such a boring place to him.
 
 I guess he has never walked in to a gym and see the people there doing exercise in their sweat soaked clothes and their faces twisting because of the pain from their muscles.
 
