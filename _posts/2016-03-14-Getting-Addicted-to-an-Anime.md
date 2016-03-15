@@ -1,14 +1,14 @@
 # Getting Addicted to an Anime 
 
-These days, I am being addicted to a Japanese anime.
+These days, I am getting addicted to a Japanese anime.
 
-It was about, in the future, a group of people collecting spaceflight debris in the Earth orbits.
+It was about, in the future, a group of people collecting spaceflight debris in Earth orbit.
 
-The whole work was perfect — It had a science-fatastic background; the plot was attractive; the pictures were beautiful; even better, the story had a happy ending.
+The whole work was perfect — It had a science-fiction background; the plot was attractive; the pictures were beautiful; even better, the story had a happy ending.
 
 Even so, I felt sad after I finished the last episode of the series.
 
-Because the story has ended, I can never know what will happen to the roles in their future.
+Because the story has ended, I can never know what will happen to the characters in the future.
 
 It is like that I have lost some intimate friends forever.
 
@@ -18,7 +18,7 @@ Any connection has been cut.
 
 No information about them can be received anymore. 
 
-All remained are the wonderful memories associated with them.
+All that remains are the wonderful memories associated with them.
 
 I understand what happened in the story was just a story. 
 
